@@ -1,4 +1,4 @@
-# 
+# Seguro Gemini Spark temas. Com web scraping e ajuste fino — otimizado para máximo desempenho e eficiência.
 
 
 
